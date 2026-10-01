@@ -1,4 +1,3 @@
-## Hi there 👋
 
 ![image alt](https://github.com/SxullH3artz/SxullH3artz/blob/888a79fe4899fed3be3b59455418fa97311e895b/2f98356918f62f3959d2cb926a61945c.png)
 
